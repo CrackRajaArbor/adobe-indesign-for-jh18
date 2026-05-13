@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe InDesign for macOS with Adobe InDesign for macOS new Filter - auto-retouch and layer styles, the #1 filter. Includes auto-retouch and layer styles for a smoother and
 
 
 
